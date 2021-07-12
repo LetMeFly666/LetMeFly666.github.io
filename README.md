@@ -1,2 +1,2 @@
 # LetMeFly666.github.io
-Try for domain, May delete soon
+OK, 看来真的是这样使用的
